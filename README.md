@@ -1,1 +1,1 @@
-# projecte-1-i-programaci-
+# projecte-1 i programació
